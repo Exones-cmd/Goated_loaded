@@ -1,2 +1,2 @@
-# Goated_loaded
-https://questionme.mrvillain.com
+# Omer Akay
+https://s3.amazonaws.com/jkss/index.html
