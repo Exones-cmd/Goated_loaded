@@ -1,2 +1,2 @@
 # Omer Akay
-https://s3.amazonaws.com/jkss/index.html
+https://nq5q.z5.web.core.windows.net/
